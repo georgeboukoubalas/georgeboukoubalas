@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a fourth-year computer science student at the University of Western Macedonia.<br>2.5 years IEEE member & 1 year member in the subteam of IEEEs Computational Intelligence Society(CIS),<br>in the sb of University of Western Macedonia.<br>Also, in my leisure time, I do volunteering in ESN (Erasmus Student Network) at the department of Western Macedonia.<br>Now time, I hold the chair of local Web Project Administrator at my local Section for the year 2025-26.<br>  
+I'm a fifth-year computer science student at the University of Western Macedonia.<br>2.5 years IEEE member & 1 year member in the subteam of IEEEs Computational Intelligence Society(CIS),<br>in the sb of University of Western Macedonia.<br>Also, in my leisure time, I do volunteering in ESN (Erasmus Student Network) at the department of Western Macedonia.<br>Now time, I hold the chair of local Web Project Administrator at my local Section for the year 2025-26.<br>  
 
 
 ## 🌐 Socials:
